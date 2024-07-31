@@ -1,0 +1,2 @@
+# Business-Wisdom-
+Sabedoria
